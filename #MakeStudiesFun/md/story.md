@@ -1,0 +1,1 @@
+You are a warrior. You learn different aspects of school studies and then use it in your fight against the invaders
